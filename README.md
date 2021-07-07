@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @coinmaster4you
+- 👋 Hi, @coinmaster4you here
 - 👀 I’m interested in blockchain/DLT and decentralized networks
 - 🌱 I’m currently learning moste useful things
 - 💞️ I’m looking to collaborate on making the world a better place hopefully
